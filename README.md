@@ -1,4 +1,4 @@
-# [Christian Machado] <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRgbMf-rGAW_du0WReBDBmhxoyKNnQe26DEhi4WMfC94ZB7fNIjytbieDGQw58SnwiGbPA&usqp=CAU" width="60px">
+# [Christian Machado] <img src="https://i.gifer.com/5Sz.gif
 
 Eu sou <Calmo>Seu Nome</Christian>, <Machado>Faça uma breve apresentação aqui</Gosto de jogar bola assistir serie comer hamburguer jogar videogame> 👨🏻‍💻 
 
